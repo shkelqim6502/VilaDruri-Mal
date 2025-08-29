@@ -40,4 +40,14 @@ If you have ideas, questions, or want to contribute – you are warmly welcome!
 🗣️ “A kind word opens the iron door.”
 
 ### 📬 Contact
-📧 Email: shkelqim6502@gmail.com
+📧 Email: shkelqim6502@gmail.com---
+
+## 🌍 Contributors Welcome
+
+Whether you're an Albanian beginner or an international contributor — this project is open to you.  
+We believe in clarity, kindness, and collaboration.
+
+🗣️ “A kind word opens the iron door.”  
+📧 Contact: shkelqim6502@gmail.com
+
+
